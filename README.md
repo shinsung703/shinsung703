@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-Fuck off
+Fuck off. I'll fuck you up
 <!--
 **shinsung703/shinsung703** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
